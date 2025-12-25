@@ -1,4 +1,4 @@
-# my-first-repo
+# my-first-project
 Learning GitHub Basics
 
 ## About
