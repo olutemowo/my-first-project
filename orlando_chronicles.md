@@ -17,3 +17,16 @@
 - Had a bath, washed beach towels and trunks
 - Sipping and chilling after sampling the jollof
 - Ladies found cheaper alternative to Disney ticket
+
+## Day 2
+- Spent all day at magic kingdom
+
+
+## Day 3
+- woke up and prepared to go to the gym 
+- Took Sims to the pool and watched her dad teach her how to seim for the first time
+- Went up to have a bath and prepare for breakfast buffet
+- Got ready to head out to the mall for shopping
+- Got an Uber coming back and did a little bit of shopping for the room
+- Met up with friends at the pool side of the hotel and made a new friend
+- Went to the room to play card games and went off to bed
