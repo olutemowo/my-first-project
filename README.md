@@ -1,4 +1,4 @@
-# learning-github
+# Learning GitHub
 Learning GitHub Basics
 
 ## About
